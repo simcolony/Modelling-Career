@@ -3,13 +3,9 @@ Fashion and Modelling Career- Design, Model, Writer -updated
 
 แปลไทย MOD อาชีพโมเดลลิ่งดาวโหลด
 
-| Store  | Download |
-
+|  Download | LINK |
 | ------------- | ------------- |
-
 |ดาวโหลด|[Modelling-Car](https://github.com/simcolony/Modelling-Career/raw/master/models.7z)|
-
-| ------------- | ------------- |
 
 
 https://www.thesimsresource.com/downloads/details/id/1412465
